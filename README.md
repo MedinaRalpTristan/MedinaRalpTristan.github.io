@@ -1,1 +1,0 @@
-# MedinaRalpTristan.github.io
